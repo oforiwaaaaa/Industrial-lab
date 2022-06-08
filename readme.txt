@@ -1,0 +1,1 @@
+to display the brighter photo in the image brightening, press key "b" on your keyboard. 😊
